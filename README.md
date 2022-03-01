@@ -1,2 +1,2 @@
-# anthology-notes
+# Anthology Notes
 Anthology Notes
