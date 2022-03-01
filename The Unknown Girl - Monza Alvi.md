@@ -14,4 +14,9 @@ The single verse style effectively maintains the links between the narrator (spe
 
 ## Language Use
 
-The poem's vocabulary
+The poem's vocabulary immediately places into a foreign exotic location (Bazaar in India). *"Bazaar, kameez, rupees"* indicate the setting
+
+**Senses** - Textures are often described appealing to her sense of touch *"She squeezes wet brown line... on her Satin peach knee"*
+
+**Contrast / Juxtapostion** - The narrator also contrasts sound *"furious... hushed"*. Colourful magic comes alive *"peacock, balloon, amber bird" contrasted to brown (dull colour)*
+
