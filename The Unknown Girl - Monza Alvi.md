@@ -29,4 +29,23 @@ The simple fact that her hand hennaing has been initated (sparked), as a powerfu
 
 **Personification** - *"Dummies in shop fronts tilt and stare"*. It emphasizes the act that the world around her can sense her new identity
 
-**Alliteration** - 
+**Alliteration** - *"curtain and cloth"*, *"Bird beneath*. It makes the poem rhythmical and musical and memorable
+
+**Consonance** - *"snail trail..."* *"Appears and reappears* *"furious streets"* *"spreads its lines"*. It makes the poem musical, memorable and rhythmical
+
+**Repetition** - *"In the evening bazaar"*. It creates emphasis on the setting where the action takes place
+
+**Similie** - *"I am clinging... like the people who cling to the sides of the train."* This means that she is not ready to remember her cultural identity and it creates a mental image
+
+**Symbolism** - *"Miss India"* *"Western perms"*. This shows cultural alienation *"New brown veins"*. It shows her new cultural identity
+
+**Contradiction** - *"I'll"*. It gives the poem and informal, friendly and conversational tone
+
+**Contraction** - *"Furious streets are hushed"*. It shows that she comes to terms with her new identity and that the cultural conflicts are resolved and she is at peace with her new self
+
+**Local Language** - *"kameez, rupees, bazaar, hennaing"*. This is the setting of the poem - Gives the poem the local setting (Indian Setting) and it also makes the poem authentic, original and credible
+
+## Themes
+
+**Quest for Identity** - The narrator is torm between two cultures, the Western and Indian culture. This is the simple act of hennaing the hand arose in her strong desire to find her cultural roots
+- **Tones (Mood of the poem)** - The tone of the poem is nostalgic (longing to be at home)
